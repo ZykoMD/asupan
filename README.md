@@ -1,6 +1,6 @@
 
 ## CATATAN
-Script ini gratis untuk semua orang, bukan untuk Dijual. Jika dijual neraka menunggumu Brother!!
+Tah lah apa ini bro 
 -
 ## ```Recode By ✏️```
-[![Zyko-MD](https://telegra.ph/file/c04f24cd3f2203ffe348f.jpg?size=20)](https://github.com/ZykoBotz-MD)
+[![Zyko-MD](https://files.cloudkuimages.guru/images/6ed717bbabe1.jpg?size=20)](https://github.com/ZykoBotz-MD)
